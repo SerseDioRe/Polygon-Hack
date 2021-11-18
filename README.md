@@ -10,3 +10,4 @@ Showcase: https://i.imgur.com/clHxNuu.png
 
 My Discord Server: https://discord.gg/hEynszCYb7
 My Discord Name: SerseDioRe#1857
+My Youtube Channel: https://www.youtube.com/channel/UCsf9JzSDQUmee1lHTqEbltQ
